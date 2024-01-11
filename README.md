@@ -1,0 +1,3 @@
+# REFLECTION
+## --> NALI🤖
+#### It is really an awesome experience for me to attend this NALI exhibition as I have the opportunity to explore more about learning innovation and trend in the 21st century. After visiting exhibition booths, I was so impressed that there are so many new learning innovations like project-based learning and VR for students to solve the real-life challenges. In my opinion, this innovation assists students to enhance passion and interest in learning as it is not a boring task anymore. Last but not least, NALI do inspire me that learning can also be fun and fantastic by using technology
